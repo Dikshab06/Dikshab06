@@ -1,2 +1,6 @@
-# DikshaBhrigue
-Introduction
+- 👋 Hi, I’m @DikshaBhrigue
+- 👀 I’m interested in Technology.
+- 🌱 Everyday learning new things.
+- 📫 How to reach me ; here in github 🤓
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: can you can a can as a canner can you can(say it! fastly....)
